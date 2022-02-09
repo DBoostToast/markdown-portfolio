@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+1. Working out
+2. Basketball
+3. Football
+4. Friends
+5. Family
